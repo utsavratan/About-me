@@ -1,6 +1,6 @@
 # About Me ❤
 I'm misterutsav
-I'm currently learning Python.<br>I'm looking for someone...<br>#FastLearner
+I'm currently learning Python...<br>I'm looking for someone...<br>#FastLearner
 <h1>muesportsindia</h1><h6>(Founder and Chairman)<h6/>
 
 ## 🌐 Socials:
